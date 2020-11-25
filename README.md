@@ -1,2 +1,2 @@
-# My CV
+# CV and some info
 
